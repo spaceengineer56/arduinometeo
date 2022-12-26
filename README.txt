@@ -1,0 +1,1 @@
+по всем вопросам сюда: https://vk.com/spaceengineer56
